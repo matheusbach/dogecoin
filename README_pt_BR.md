@@ -71,7 +71,7 @@ onde os contribuintes terão grande importância e apreço. wow.
 ## Comunidades 🚀🍾
 
 Você pode se juntar à comunidade em diferentes redes sociais. 
-Pra ver o que est acontecendo, encontrar gente e discutir, receber o ultimo meme, aprender sobre 
+Pra ver o que está acontecendo, encontrar gente e discutir, receber o ultimo meme, aprender sobre 
 Dogecoin, dar e receber ajuda e compartilhar seu projeto. 
 
 Aqui estão alguns lugares pra visitar: 
